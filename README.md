@@ -1,1 +1,1 @@
-# Amazing Projects To Look Up
+# Amazing Projects
